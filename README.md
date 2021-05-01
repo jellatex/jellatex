@@ -8,5 +8,5 @@ Currently, my computer plug isnt here yet, so I'm stuck in "Chromebook purgatory
  
 ---
 
-## Discord? ![hi](discordd.png)
+## Discord?
 i have a [discord](https://discord.gg/gJnMP6Tw8f)! join or i will take legal action
