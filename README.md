@@ -9,4 +9,4 @@ Currently, my computer plug isnt here yet, so I'm stuck in "Chromebook purgatory
 ---
 
 ## Discord?
-i have a discord! join or i will take legal action
+i have a [discord](https://discord.gg/gJnMP6Tw8f)! join or i will take legal action
